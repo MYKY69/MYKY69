@@ -2,7 +2,7 @@
 - 👀 I’m interested in experimenting with stuff i dont understand
 - 🌱 I’m currently learning how to properly sleep
 - 💞️ I’m looking to collaborate on i hate human contact
-- 📫 How to reach me ... You cant :)
+- 📫 How to reach me ... at discord petr#2475
 
 <!---
 MYKY69/MYKY69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
